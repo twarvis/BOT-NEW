@@ -38,3 +38,6 @@ For additional information and support, please visit [Asitha-md's website](https
 ---
 
 Thank you for exploring the **BOT-NEW** repository. We hope you find the "Asitha-md whatsapp bot" to be a valuable addition to your communication tools. Feel free to reach out with any questions or feedback. Happy botting! 🚀🤖
+
+
+𝙰𝚂𝙸𝚃𝙷𝙰-𝙼𝙳=ziJHXAJa#WWUQngM1ko8SgGRQ9ypnZ192z-UwhxFgK0WtR5JADTI
